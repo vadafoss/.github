@@ -1,1 +1,1 @@
-vadasambar and everyone else for free and open source software
+vadasambar and friends for free and open source software
